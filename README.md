@@ -2,8 +2,7 @@
 
 ```
 
-Script spam sms unlimited berisi 60 otp bertujuan untuk ngeprank temen lu yg suka maen game online!
-Pasti auto ngamuk sama auto baku hantam dah wkwk :v
+Script spam sms unlimited berisi 60 otp dijamin notif auto rame xixi :v
 
 ```
 # Info
